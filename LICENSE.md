@@ -1,4 +1,4 @@
-# 
+# automatic 3008 Scripts is the best 3008 Script, featuring undetectable and infinite resources. Safe and powerful for all your needs.
 
 
 
